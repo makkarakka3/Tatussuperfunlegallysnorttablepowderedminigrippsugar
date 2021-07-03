@@ -1,4 +1,4 @@
-ensimmäinen joka ostaa meiltä jonkun patreon tierin osoitteessa patreon.com/artelokuvaoy saa minigripp pussissa :
+ensimmäinen joka ostaa meiltä jonkun patreon tierin osoitteessa https://patreon.com/artelokuvaoy saa minigripp pussissa :
 Sokeria
 (Noin 20 grammaa)
 Emme ole vastuussa, jos poliisi pidättää sinut tuntemattoman valkoisen jauheen hallussapidon takia.
